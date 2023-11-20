@@ -7,6 +7,7 @@ meu nome é alexandre walchak
 
 -@escola alexandre.reichert@escola.pr.gov.br (escrever @escola)
 
+![](https://media.tenor.com/8YKRFKh8nAEAAAAC/baby-run.gif)
 
 
 
